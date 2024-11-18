@@ -4,7 +4,7 @@
 <p align="center">── ⋆⋅☆⋅⋆ ──</p>
 <p align="center"><img src="https://github.com/H077y/pride-flag-emojis/blob/main/emojis/aroace/flag_aromantic.png?raw=true" alt="Sample Image" width="24" height="15">  <img src="https://github.com/H077y/pride-flag-emojis/blob/main/emojis/pride/flag_transgender.png?raw=true" alt="Sample Image" width="24" height="15">
 <p align="center">── ⋆⋅☆⋅⋆ ──</p>
-<p align="center">Hi there, call me Dire or Logan - He/It</p>
+<p align="center">Hi there, you can call me Dire, Rent, or Logan - He/It</p>
 <p align="center">Average stoner🍃💯 - 18+ - Full blown retard</p>
 <p align="center">I'm always lurking around, feel free to say hi!</p>
 <p align="center">。,　☆　*</p>
