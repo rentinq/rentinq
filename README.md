@@ -1,6 +1,4 @@
-<p align="center">THIS IS A WORK IN PROGRESS (Im incredibly lazy)</p>
-<p align="center">⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ◇ ▪︎ 𖥸 ▪︎ ◇ ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘</p>
-<p align="center">.　 . • ☆ . ° .• °:. *₊ ° . ☆</p>
+<p align="center">⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ◇ ▪︎ 𖥸 ▪︎ ◇ ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘</p> <p align="center">.　 . • ☆ . ° .• °:. *₊ ° . ☆</p>
 <p align="center">── ⋆⋅☆⋅⋆ ──</p>
 <p align="center"><img src="https://github.com/H077y/pride-flag-emojis/blob/main/emojis/aroace/flag_aromantic.png?raw=true" alt="Sample Image" width="24" height="15">  <img src="https://github.com/H077y/pride-flag-emojis/blob/main/emojis/pride/flag_transgender.png?raw=true" alt="Sample Image" width="24" height="15">
 <p align="center">── ⋆⋅☆⋅⋆ ──</p>
