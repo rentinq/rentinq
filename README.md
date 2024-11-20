@@ -4,7 +4,7 @@
 <p align="center">── ⋆⋅☆⋅⋆ ──</p>
 <p align="center">Hi there, you can call me Dire, Rent, or Logan - He/It</p>
 <p align="center">Average stoner🍃💯 - 18+ - Full blown retard</p>
-<p align="center">I'm always lurking around, feel free to say hi!</p>
+<p align="center">I'm always lurking around, feel free to say hi! I'm very friendly I promise I'm just shy 🥸</p>
 <p align="center">。,　☆　*</p>
 <p align="center">· · • ● ══════════════════ · 𖥸 · ══════════════════ ● • · ·</p>
 <p align="center">DNI/Blocked on sight:</p>
